@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @BlameIvan
+- 👀 I’m interested in video games, music, and learning more about technology.
+- 🌱 I’m currently learning how to code in Python.
+- 📫 How to reach me @ivancon981 on Instagram. 
+- 😄 Pronouns: he/him/his
+- ⚡ Fun fact: I can look at two different things across a room at once.
